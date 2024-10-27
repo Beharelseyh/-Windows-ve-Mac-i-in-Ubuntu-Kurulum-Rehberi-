@@ -1,0 +1,1 @@
+# -Windows-ve-Mac-i-in-Ubuntu-Kurulum-Rehberi-
